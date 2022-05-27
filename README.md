@@ -1,1 +1,0 @@
-# ternakuang-test
